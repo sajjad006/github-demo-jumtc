@@ -3,5 +3,5 @@
 
 Sajjad Ahmed Shaaz
 Eesadip Bhattacharya
-Aritra Panja
+Aritra  Panja
 Santanu Bandyopadhyay
